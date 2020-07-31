@@ -1,3 +1,4 @@
 # Hello-word
 Da probamo !
-I da dodamo !
+Da IZBACIMO...
+Nesto o meni, svasta o sebi.
